@@ -1,1 +1,1 @@
-Yarısından fazlası bitti sınavlardan sonra devam edeceğim
+https://twittercloneerkl.netlify.app/
